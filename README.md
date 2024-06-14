@@ -1,5 +1,7 @@
 ## MGM Grand Market: A Hidden Gem in the Darknet
 
+### http://duysanj6lge7vfis24r4zkqrvq6tq4xknajk2wdrne2wgx5hpr5c3tqd.onion
+
 **MGM Grand Market** is a relatively new darknet market that has quickly gained popularity among users. It boasts a user-friendly interface, a wide variety of products, and a strong focus on security. This market is known for its reliability and its commitment to providing a safe and secure trading environment for its users.
 
 ### Key Features
